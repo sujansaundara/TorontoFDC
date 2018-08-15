@@ -18,7 +18,7 @@
 
 **Bar Hop**
 
-**Roywoods**
+**Roywoods** (ossington)
 
 - Unique pubfood. Jamaican street food style. great atmostphere for the evening. 
 
