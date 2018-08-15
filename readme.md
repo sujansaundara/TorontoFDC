@@ -1,4 +1,4 @@
-# Toronto Food Places
+# toronto food_drink_and_chill spots
 
 *Some of these places will have long lines and waits. Most places can be pre-booked. Opentable.ca for booking ahead.* 
 
@@ -10,7 +10,7 @@
 
 **Sweaty Bettys**
 
-- On Ossington. Drink here then walk north on ossington. Tons of great  food and desert places. 
+- On Ossington at Queen. Drink here then walk north on ossington. Several great  food and desert places (oddseoul, soos, bellwoods brewery. bang bang ice cream ).  Sit in the patio space out back. 
 
 **Crocodile Rock**
 
@@ -24,7 +24,7 @@
 
 **Madison's**
 
-- This was our university pub. From I think 3-7 is half price apps. It's 3 row houses joined together with 3 floors. Head to the top and sit out on the patio. 
+- This was our university pub. From I think 3-7 is half price apps. It's 3 row houses joined together with 3 floors. Head to the top and sit out on the patio. In the summer will be generally free of students.
 
 **Sneaky Dee's**
 
