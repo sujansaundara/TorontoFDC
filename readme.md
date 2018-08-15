@@ -1,4 +1,4 @@
-# toronto food_drink_and_chill spots
+# toronto food_drink spots
 
 *Some of these places will have long lines and waits. Most places can be pre-booked. Opentable.ca for booking ahead.* 
 
