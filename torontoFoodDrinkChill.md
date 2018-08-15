@@ -10,7 +10,7 @@
 
 **Sweaty Bettys**
 
-- On Ossington. Drink here then walk north on ossington. Tons of great  food and desert places.  Sit in the patio space out back. 
+- On Ossington at Queen. Drink here then walk north on ossington. Several great  food and desert places (oddseoul, soos, bellwoods brewery. bang bang ice cream ).  Sit in the patio space out back. 
 
 **Crocodile Rock**
 
