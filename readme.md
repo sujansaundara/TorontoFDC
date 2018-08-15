@@ -6,7 +6,7 @@
 
 
 
-## Bars
+## bars
 
 **Sweaty Bettys**
 
@@ -34,7 +34,7 @@
 
 
 
-## Dinner
+## dinner
 
 **Baro**
 
@@ -54,7 +54,7 @@
 
 
 
-## Drinks/Apps 
+## drinks_apps 
 
 **Bar Isabel** 
 
@@ -96,7 +96,7 @@
 
   
 
-## Modern Thai 
+## modern thai 
 
 *all likely need prebooking (opentable.ca)* *listed in order of my favourite*
 
@@ -108,7 +108,7 @@
 
 
 
-## Hi-End Steak
+## hi-end_steak
 
 **Jacobs**
 
