@@ -10,7 +10,7 @@
 
 **Sweaty Bettys**
 
-- On Ossington. Drink here then walk north on ossington. Tons of great  food and desert places. 
+- On Ossington. Drink here then walk north on ossington. Tons of great  food and desert places.  Sit in the patio space out back. 
 
 **Crocodile Rock**
 
